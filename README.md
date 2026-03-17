@@ -1,16 +1,26 @@
-## Hi there 👋
+```markdown
+<div align="center">
+  ✧･ﾟ: *✧･ﾟ:*  "The perfect match of light and dark. Each other's only Tainted—and No Longer Human."  *:･ﾟ✧*:･ﾟ✧
+</div>
 
-<!--
-**simmyo-DzCy/simmyo-DzCy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+  — DNC/INT
+</div>
 
-Here are some ideas to get you started:
+<div align="center">
+  - Please talk to me in whispers.
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+### 🌿 About me
+- 📌  **Server:** mainly on safe server / china server (BSD area)
+- 🕒  **Time zone:** 2pm ~ 4am
+- 🔒  **OTP:** Dazai/Chuuya
+
+---
+
+<div align="center">
+  here lies simmy
+</div>
+``
