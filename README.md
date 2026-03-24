@@ -1,6 +1,9 @@
 <div align="center">
-  ✧･ﾟ: *✧･ﾟ:*  "The perfect match of light and dark. Each other's only Tainted—and No Longer Human."  *:･ﾟ✧*:･ﾟ✧
+  <img src="https://github.com/simmyo-DzCy/simmyo-DzCy/blob/main/1774392026085.png" width="800" alt="My Art">
 </div>
+<br>
+
+✧*:･ﾟ✧*:･ﾟ* "The perfect match of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
 
 <br>
 
@@ -10,19 +13,15 @@
 
 <br>
 
-<div align="center">
-  Please talk to me in whispers.
-</div>
+Please talk to me in whispers.
 
 ---
 
 ### 🌿 About me
-- 🎮 **Server:** mainly on safe server / china server (BSD area)
-- ⏰ **Time zone:** 2pm ~ 4am
-- 🔒 **OTP:** Dazai/Chuuya
+- 🍀 Server: mainly on safe server / china server (BSD area)
+- ☘️ Time zone: 2pm ~ 4am
+- 🔒 OTP: Dazai/Chuuya
 
 ---
 
-<div align="center">
-  here lies simmy
-</div>
+here lies simmy
