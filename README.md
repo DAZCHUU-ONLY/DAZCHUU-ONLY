@@ -16,7 +16,7 @@ Strict DAZCHUU(DAZNAKA). If Nakadaz or no-preference doesnâ€™t repulse you, weâ€
 
 <br>
 
-Please talk to me in whispers.
+Whisper communications only
 
 ---
 
