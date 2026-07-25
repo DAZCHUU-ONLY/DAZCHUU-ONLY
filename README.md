@@ -4,6 +4,7 @@
 <br>
 
 ✧*:･ﾟ✧*:･ﾟ* "The perfect match of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
+if you're skk or daznaka and also okay with nakadaz, stay away from me too
 
 <br>
 
@@ -20,7 +21,7 @@ Please talk to me in whispers.
 ### 🌿 About me
 - 🍀 Server: mainly on safe server / china server (BSD area)
 - ☘️ Time zone: 2pm ~ 4am
-- 🔒 OTP: Dazai/Chuuya
+- 🔒 OTP: Dazai/Chuuya。ONLY!ONLY!!
 
 ---
 
