@@ -6,7 +6,7 @@
 ✧*:･ﾟ✧*:･ﾟ* "The perfect match of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
 
 
-Strict DAZCHUU. If Nakadaz or no-preference doesn’t repulse you, we’re not a match.
+Strict DAZCHUU. If Nakadaz or no-preference doesn’t repulse u, we’re not a match.
 
 <br>
 
