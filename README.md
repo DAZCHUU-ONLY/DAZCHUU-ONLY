@@ -3,7 +3,7 @@
 </div>
 <br>
 
-✧*:･ﾟ✧*:･ﾟ* "The perfect match of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
+✧*:･ﾟ✧*:･ﾟ* "The perfect balance of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
 
 
 Strict DAZCHUU. If Nakadaz or no-preference multi-shipping doesn’t repulse u, we’re not a match.
