@@ -4,6 +4,8 @@
 <br>
 
 ✧*:･ﾟ✧*:･ﾟ* "The perfect match of light and dark. Each other's only Tainted—and No Longer Human." *:･ﾟ✧*:･ﾟ✧
+
+
 if you're skk or daznaka and also okay with nakadaz, stay away from me too
 
 <br>
