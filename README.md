@@ -22,7 +22,7 @@ Strict DAZCHUU. If Nakadaz or no-preference doesn’t repulse u, we’re not a m
 ### 🌿 About me
 - 🍀 Server: mainly on safe server / china server (BSD area)
 - ☘️ Time zone: 2pm ~ 4am
-- 🔒 OTP: Dazai/Chuuya。ONLY!ONLY!!
+- 🔒 OTP: Dazai/Chuuya。ONLY
 
 ---
 
